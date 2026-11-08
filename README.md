@@ -1,4 +1,4 @@
-# 𝐓𝐎 𝐓𝐇𝐄 𝐀𝐑𝐊.
+# ᴛʜᴇ ᴅᴀʀᴋ ᴀᴇᴛʜᴇʀ.
 
 <p align="center"><sub>i want all of her. i fucking loved her!</sub>
 ⁭ ⁭ <p align="center">⋅────────────────────⊱༺♰༻⊰─────────────────────⋅ <br>
